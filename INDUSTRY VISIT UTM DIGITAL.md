@@ -1,4 +1,4 @@
-# 🎥 Project Design Thinking: Video
+# 🎥 Industry Visit: UTM Digital
 
 Click on the image below to **watch the video**:
 
